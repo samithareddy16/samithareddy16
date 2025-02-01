@@ -1,6 +1,6 @@
 ## Hi there  I'm Samitha Katipally👋
 
-🎓 MSBA 2nd Semester | 3 credits left to graduate
+🎓 MSBA 3rd Semester | 3 credits left to graduate
 
 📍 Moved to the US to pursue my master's degree
 
